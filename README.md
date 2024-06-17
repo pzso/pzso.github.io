@@ -1,2 +1,2 @@
 # pzso.github.io
-Előadás kiegészítők
+Megszüntetve.
